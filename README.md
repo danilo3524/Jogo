@@ -1,0 +1,2 @@
+# Jogo
+Miri escolhas 
